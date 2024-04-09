@@ -1,0 +1,1 @@
+# RNG_Anime_Rarities
